@@ -1,6 +1,6 @@
 # Executive Summary
 
-**June 2023–September 2025 — Redacted professional research abstract:** public, non-confidential overview of a pre-AUM systematic portfolio research program developed at Delta Strategy Co.
+**June 2023–September 2025 — Redacted professional research abstract:** public, non-confidential overview of a pre-AUM systematic portfolio research program, that produced a white paper, developed at Delta Strategy Co.
 
 ## Project Context
 
